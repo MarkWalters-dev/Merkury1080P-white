@@ -1,3 +1,12 @@
+# Pictures of the Merkury Smart Wi-FI Camera
+Part number: MI-CW051-199W 
+
+UPC: 194383040088
+
+Has an average of 1 star with 10 reviews at Walmart.
+
+
+
 ![img/2023-01-11-204427.jpg](img/2023-01-11-204427.jpg)
 
 ![img/2023-01-11-204449.jpg](img/2023-01-11-204449.jpg)
